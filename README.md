@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Software Engineering
 - 💞️ I’m looking to collaborate on unique projects
 - 📫 How to reach me imamakainat9@gmail.com
-- 😄 Pronouns: He/She
+- 😄 Pronouns: Her/She
 - ⚡ Fun fact: ...
 
 <!---
